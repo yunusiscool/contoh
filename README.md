@@ -1,0 +1,2 @@
+# contoh
+buat latihan aja
